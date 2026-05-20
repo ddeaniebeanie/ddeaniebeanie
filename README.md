@@ -9,5 +9,3 @@
   <p align="center">$\small{\textsf{ }}$
 <div align="center"><img width="500" height="40" alt="abc5acb3" src="https://github.com/user-attachments/assets/1a19f4a9-ec17-4d93-8961-987a8bc67b7b" />
 <p align="center">$\small{\textsf{ }}$
-
-<p align="center">$\small{\textsf{->[*LINKS*]()  |  [*LINKS*]()  |  [*LINKS*]()  |  [*LINKS*]()  |  [*LINKS*]()  |  [*LINKS*]()<- }}$
