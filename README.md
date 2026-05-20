@@ -7,7 +7,8 @@
 <p align="center"<p align="center">$\small{\textsf{they⠀·⠀them}}$
 <p align="center">$\color{#deb887}{\textsf{𓏼⠀❛❛ i prayed to you cas, every night.  ───﹒♱﹒}}$
   <p align="center">$\small{\textsf{ }}$
-<div align="center"><img width="500" height="295" alt="8bdcfc1d0bb28e4a6062a772e52043d8" src="https://github.com/user-attachments/assets/3d594071-aba3-405d-8510-6b0020183f1d" />
+<div align="center"><img width="1080" height="359" alt="0700334561c957a5b27d01b8bd151186" src="https://github.com/user-attachments/assets/d720651a-fb06-4b10-aef7-ce24e7bd1a60" />
+
 
 <p align="center">$\small{\textsf{ }}$
 <p align="center">
