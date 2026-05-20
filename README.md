@@ -6,5 +6,8 @@
 <p align="center">$\small{\textsf{ }}$
 <p align="center"<p align="center">$\small{\textsf{they⠀·⠀them}}$
 <p align="center">$\color{#deb887}{\textsf{𓏼⠀❛❛ i prayed to you cas, every night.  ───﹒♱﹒}}$
-<div align="center"><img width="500" height="100" alt="abc5acb3" src="https://github.com/user-attachments/assets/c7c90e39-7cac-40e3-a8a1-2d9255af889e" />
+  <p align="center">$\small{\textsf{ }}$
+<div align="center"><img width="500" height="40" alt="abc5acb3" src="https://github.com/user-attachments/assets/1a19f4a9-ec17-4d93-8961-987a8bc67b7b" />
+<p align="center">$\small{\textsf{ }}$
 
+<p align="center">$\small{\textsf{->[*LINKS*]()  |  [*LINKS*]()  |  [*LINKS*]()  |  [*LINKS*]()  |  [*LINKS*]()  |  [*LINKS*]()<- }}$
