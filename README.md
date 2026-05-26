@@ -10,3 +10,6 @@
 <p align="center"<p align="center">$\small{\textsf{they⠀·⠀them}}$
 <p align="center">$\color{#deb887}{\textsf{𓏼⠀❛❛ i prayed to you cas, every night.  ───﹒♱﹒}}$
 <p align="center">$\small{\textsf{ }}$
+  <div align="center">
+  
+꒰ঌ [pronouns](https://pronouns.cc/@ddeaniebeanie) . [atta book](https://deaniebeanie.atabook.org/) ໒꒱
