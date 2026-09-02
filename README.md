@@ -2,6 +2,10 @@
 
 $\small{\textsf{ }}$
 
+<img width="140" src="https://komarev.com/ghpvc/?username=ddeaniebeanie&label=BEST+VIEWED+ON+PC&color=0a0901">
+
+$\small{\textsf{ }}$
+
 <div align="center"><img width="900" height="900" alt="Untitled160_20260901211155" src="https://github.com/user-attachments/assets/1f902771-1b73-4ba3-98d0-b979126d2c2c" />
 
 $\small{\textsf{ }}$
