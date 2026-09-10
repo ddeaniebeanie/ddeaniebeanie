@@ -9,7 +9,7 @@ $\small{\textsf{ }}$
 $\small{\textsf{ }}$
 
 <div align="center"> 
-꒰ঌ <a href="https://ddeansgrace.straw.page">strawpage</a> . <a href="https://rentry.co/ddeaniebeanie">rentry</a> . <a href="https://pronouns.cc/@ddeaniebeanie">pronouns</a> . <a href="https://deaniebeanie.atabook.org/">atta book</a> ໒꒱
+꒰ঌ <a href="https://ddeansgrace.straw.page">strawpage</a> . <a href="https://pronouns.cc/@ddeaniebeanie">pronouns</a> . <a href="https://deaniebeanie.atabook.org/">atta book</a> ໒꒱
 
 $\small{\textsf{ }}$
  
