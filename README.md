@@ -13,7 +13,8 @@ $\small{\textsf{ }}$
 
 $\small{\textsf{ }}$
  
-<div align="center"><img width="546" height="457" alt="Untitled160_20260901211155__1_-removebg-preview" src="https://github.com/user-attachments/assets/60899db4-df52-49f1-8b31-b28ca6fe128f" />
+<div align="center"><img width="500" height="300" alt="Untitled168_20261102222110-removebg-preview" src="https://github.com/user-attachments/assets/766e4b1f-5967-4b87-bc66-363b50f864ac" />
+
 
 <p align="center">$\color{#deb887}{\textsf{'' pretty boy consumed by death. ,,}}$
  <p align="center">$\small{\textsf{Dean  ๑◞   ݁　֪. they/them }}$
