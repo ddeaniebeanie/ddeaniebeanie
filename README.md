@@ -8,9 +8,7 @@ $\small{\textsf{ }}$
 <p align="center">$\color{#f5eeed}{\textsf{ﾶ   ִ   ✶ read strawpage before interacting . C + H  freely ─﹒♱﹒}}$
 <p align="center">$\color{#c2b2b0}{\textsf{݁　֪. '' I block freely. ,,}}$
 
-$\small{\textsf{ }}$
-
-<p align="center"><img width="200" src="https://komarev.com/ghpvc/?username=ddeaniebeanie&label=ENTERING+PURGATORY&color=0a0901">
-
 <div align="center"><img width="536" height="63" alt="2e6c1771" src="https://github.com/user-attachments/assets/e4af6bb2-d563-481d-9870-b1352723b7fe" />
 
+ $\small{\textsf{ }}$
+ <p align="center"><img width="200" src="https://komarev.com/ghpvc/?username=ddeaniebeanie&label=ENTERING+PURGATORY&color=0a0901">
