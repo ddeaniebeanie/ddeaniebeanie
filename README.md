@@ -13,7 +13,8 @@ $\small{\textsf{ }}$
 
 $\small{\textsf{ }}$
  
-<div align="center"><img width="500" height="300" alt="Untitled168_20261102222110-removebg-preview" src="https://github.com/user-attachments/assets/766e4b1f-5967-4b87-bc66-363b50f864ac" />
+<div align="center"><img width="490" height="283" alt="IMG_9633-removebg-preview" src="https://github.com/user-attachments/assets/07dc5ce4-3a01-4716-97a4-62998518ec0a" />
+
 
 
 <p align="center">$\color{#deb887}{\textsf{'' pretty boy consumed by death. ,,}}$
