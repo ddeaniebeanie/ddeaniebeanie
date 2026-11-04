@@ -1,8 +1,6 @@
-<div align="center"><img width="600" height="88" alt="a5a11c3e" src="https://github.com/user-attachments/assets/0ea4075c-cd10-498f-8b19-9412dfa42e6e" />
+<div align="center"><img width="450" height="280" alt="IMG_9633-removebg-preview" src="https://github.com/user-attachments/assets/07dc5ce4-3a01-4716-97a4-62998518ec0a" />
 
-
-$\small{\textsf{ }}$
-
+ $\small{\textsf{ }}$
 
 <img width="200" src="https://komarev.com/ghpvc/?username=ddeaniebeanie&label=THE+DEAN+WINCHESTER&color=0a0901">
 
@@ -13,7 +11,7 @@ $\small{\textsf{ }}$
 
 $\small{\textsf{ }}$
  
-<div align="center"><img width="490" height="283" alt="IMG_9633-removebg-preview" src="https://github.com/user-attachments/assets/07dc5ce4-3a01-4716-97a4-62998518ec0a" />
+
 
 
 
@@ -43,7 +41,7 @@ $\small{\textsf{ }}$
 
 <div align="center">
 
-<img width="458" height="350" alt="Untitled162_20260901225603-removebg-preview" src="https://github.com/user-attachments/assets/ccf770c2-4755-4b77-bec7-a4ce3ba2c785" />
+
 
 <p align="center">$\color{#deb887}{\textsf{𓏼⠀❛❛ i prayed to you cas, every night.  ───﹒♱﹒}}$
 <p align="center">$\small{\textsf{ }}$
